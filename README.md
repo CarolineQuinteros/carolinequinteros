@@ -2,6 +2,6 @@
 
 - 🌱 Estudando Análise e desenvolvimento de sistema...
 - 😄 Pronouns: ela/dela...
-- 
+
 
 
